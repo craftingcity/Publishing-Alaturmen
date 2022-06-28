@@ -1,1 +1,0 @@
-Kalix is Troglodyte :)
