@@ -1,0 +1,9 @@
+---
+tags: "writeup, loreful"
+---
+
+In the year of 102AF, a group of Giants gathered together with a simple plan. Travel the planes, make space in the [Planes](..\..\..\..\..\..\The%20Planes%20of%20Existence.md) via assaulting and enslaving the inhabitants of the Marked Plane, [Alaturmen](..\..\..\..\Alaturmen.md), and live there free of The Ordening. [King Snure](..\..\..\..\..\..\..\Game%20Notes\NPCs\ala%20Alaturmen\zNon-Humanoid\Giant%20NPCs\King%20Snure.md) brought this plan to two other Giant leaders, The [Jarl Grungar](..\..\..\..\..\..\..\Game%20Notes\NPCs\ala%20Alaturmen\zNon-Humanoid\Giant%20NPCs\Jarl%20Grungar.md) and The Chief What's-His-Name, and plans to spread the word of "the great migration". Stone giant groups heard, but few became interested. Cloud and Storm giant groups outright disavowed the plan. The other Frost and Hill giants looked to their peers.
+
+"[All-Father Annam](..\..\..\..\..\..\..\Game%20Notes\NPCs\ala%20Alaturmen\Absolute%20Power\All-Father%20Annam.md) is dead and gone. The others do not believe it to be so. Let us show them that the [Ordening](..\..\..\..\..\Elemental%20Planes\Ordening.md) is false prophecy. We are greater together!" - [King Snure](..\..\..\..\..\..\..\Game%20Notes\NPCs\ala%20Alaturmen\zNon-Humanoid\Giant%20NPCs\King%20Snure.md)
+
+[King Snure](..\..\..\..\..\..\..\Game%20Notes\NPCs\ala%20Alaturmen\zNon-Humanoid\Giant%20NPCs\King%20Snure.md) was a powerful foe who desperately wished to secure his victory. He contacted a group of Drow from the [Underdark](..\..\..\..\..\Underdark\Underdark.md) who said they could help; [The Whitimores](..\..\..\..\..\Underdark\Groups\The%20Whitimores.md). And they were quite helpful, even from so far away! Snure's one problem, traveling from his domain to Alaturmen they could solve - for a price.
